@@ -35,14 +35,13 @@ Como estudiante de compu, vengo experimentando de primera mano como la falta de 
 
 > *gracias por leerme!! (asumo que me leiste si llegaste hasta aca). para votar (no hace falta que me votes a mi, pero por favor, vota!!!!!) tenes que ir a la oficina 1502 entre el 13/10 y el 17/10 (entre las 14 y las 19)*
 
-[![Foo](https://i.ibb.co/6JNwTwYk/cubaca-2.png "Haceme click!!!!!!!")](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+
 
 [<img src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 [<img src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 [<img src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 [<img src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
-[<img src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
 
 
