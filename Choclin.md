@@ -2,8 +2,13 @@ __Hola!__
 Soy Juana Choclin, estudiante de compu :) mi tg es @Juani_ch. 
 
 ### Un poco sobre mi: ###
- - aahhhhhh no se que poner aca (nunca tengo problema para hablar de mi misma y ahora se ve q si lmao) (ya se me va a a ocurrir pero me quiero ir a mimir)
- - realmente no se q poner aaaahhhhh pero ya el resto está
+- me gusta mucho leer :) (leo una cantidad excesiva de libros, y no muy buenos)
+- defensora n°1 de wsl (aunque no de windows, nunca de windows)
+- fan de C++, prolog y asm
+- hater de la sintaxis de R (y un poco de python también)
+- tengo opiniones encontradas con la proliferación de la IA generativa
+- tengo una leve adicción a twitter
+- me gusta cocinar cosas dulces (galletitas, alfajores, etc) 
 
 
 ### Tal vez me conozcas por: ###
@@ -25,8 +30,8 @@ Me parece importante que no se pierdan con la gente nueva que va entrando a la c
 
 - __Traer a la gente de Whatsapp a Telegram:__ A diferencia de Whatsapp, los grupos de Telegram te permiten ver los mensajes previos a que te unas, como también permiten un número mayor de miembros. Además, Telegram tiene la opción de no mostrar tu número de teléfono a la gente que no te tenga agendada, por lo que te permite mayor privacidad. Creo que estaría bueno que se vuelva a popularizar el uso de los grupos de telegram como método de comunicación entre estudiantes. 
 
-- __Representar a los estudiantes con los problemas de cursada:__ El cuatri pasado tuve la suerte (? de cursar Algo3 (también conocida como TDA), y para el que no sepa, termino siendo un cuatri bastante accidentado. Esta situación me llevo a interesarme bastante por lo que se puede hacer como estudiantes (y como codeppers) cuando ocurren este tipo de cosas. Claramente no se trato de un problema aislado, todos sabemos como en los últimos años la falta de presupuesto sumado al crecimiento de la cantidad de alumnos de compu y datos, hicieron que las materias estén practicamente saturadas.
-Como estudiante de compu, vengo experimentando de primera mano como la falta de docentes, debido a la falta de presupuesto, afectan el día a día de la cursada. Como cada vez menos materias tienen clase en los labos, o como la cantidad de alumnos sobrepasa demasiado la capacidad de los ayudantes para responder las consultas de todes. Creo que es importante ser concientes de toda esta situación y desde nuestro lugar ayudar con lo que se pueda.
+- __Representar a los estudiantes con los problemas de cursada:__ El cuatri pasado tuve la suerte (? de cursar Algo3 (también conocida como TDA), y para el que no sepa, terminó siendo un cuatri bastante accidentado. Esta situación me llevó a interesarme bastante por lo que se puede hacer como estudiantes (y cómo codeppers) cuando ocurren este tipo de cosas. Claramente no se trató de un problema aislado, todos sabemos como en los últimos años la falta de presupuesto sumado al crecimiento de la cantidad de alumnos de compu y datos, hicieron que las materias estén prácticamente saturadas.
+Como estudiante de compu, vengo experimentando de primera mano como la falta de docentes afectan el día a día de la cursada. Como cada vez menos materias tienen clase en los labos, o como la cantidad de alumnos sobrepasa demasiado la capacidad de los ayudantes para responder las consultas de todes. Creo que es importante ser concientes de toda esta situación y desde nuestro lugar ayudar con lo que se pueda.
 
 
 
@@ -37,10 +42,10 @@ Como estudiante de compu, vengo experimentando de primera mano como la falta de 
 
 
 
-[<img src="https://github.com/jchoclin/cosas/blob/main/cubaca_2.png?raw=true" alt="haceme click!!!!!!!!!!!">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-[<img src="https://github.com/jchoclin/cosas/blob/main/cubaca_2.png?raw=true">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-[<img src="https://github.com/jchoclin/cosas/blob/main/cubaca_2.png?raw=true">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-[<img src="https://github.com/jchoclin/cosas/blob/main/cubaca_2.png?raw=true">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+[<img alt="haceme click!!!!!!" src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+[<img alt="dalee haceme click!!!!" src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+[<img alt="te juro q no soy un virus" src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+[<img alt="jeje" src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
 
 
