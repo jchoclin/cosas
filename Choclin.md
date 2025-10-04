@@ -7,7 +7,7 @@ Soy Juana Choclin, estudiante de compu :) mi tg es @Juani_ch.
 
 ### Tal vez me conozcas por: ###
 
-- __Ser la creadora de la Cubaca🐄 [^1] (👋)__ No se si te cruzaste últimamente con este sticker…
+- __Ser la creadora de la Cubaca🐄 (👋)__ No se si te cruzaste últimamente con este sticker…
 
 - __Ser divulgadora del DC,__ Desde el 2023, junto con el equipo de extensión, participó en la organización de la Semana de la Computación, la Noche de los Museos, entre otras cosas. En la última Sdc estuve coordinando el sector de Sistemas y dictando el Taller de Programación Musical.
 
@@ -29,7 +29,12 @@ Como estudiante de compu, vengo experimentando de primera mano como la falta de 
 
 
 
-[^1]: [![Foo](https://i.ibb.co/Mxk1szfy/cubaca-1.png "Haceme click!!!!!!!")](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+
+
+
+> *gracias por leerme!! (asumo que me leiste si llegaste hasta aca). para votar (no hace falta que me votes a mi, pero por favor, vota!!!!!) tenes que ir a la oficina 1502 entre el 13/10 y el 17/10 (entre las 14 y las 19)*
+
+[![Foo](https://i.ibb.co/Mxk1szfy/cubaca-1.png "Haceme click!!!!!!!")](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
 
 
