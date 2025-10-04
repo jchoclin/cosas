@@ -37,10 +37,10 @@ Como estudiante de compu, vengo experimentando de primera mano como la falta de 
 
 
 
-[<img src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-[<img src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-[<img src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-[<img src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+[<img src="https://github.com/jchoclin/cosas/blob/main/cubaca_2.png?raw=true">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+[<img src="https://github.com/jchoclin/cosas/blob/main/cubaca_2.png?raw=true">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+[<img src="https://github.com/jchoclin/cosas/blob/main/cubaca_2.png?raw=true">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+[<img src="https://github.com/jchoclin/cosas/blob/main/cubaca_2.png?raw=true">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
 
 
