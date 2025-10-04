@@ -2,7 +2,8 @@ __Hola!__
 Soy Juana Choclin, estudiante de compu :) mi tg es @Juani_ch. 
 
 ### Un poco sobre mi: ###
- - 
+ - aahhhhhh no se que poner aca (nunca tengo problema para hablar de mi misma y ahora se ve q si lmao) (ya se me va a a ocurrir pero me quiero ir a mimir)
+ - realmente no se q poner aaaahhhhh pero ya el resto está
 
 
 ### Tal vez me conozcas por: ###
@@ -34,7 +35,8 @@ Como estudiante de compu, vengo experimentando de primera mano como la falta de 
 
 > *gracias por leerme!! (asumo que me leiste si llegaste hasta aca). para votar (no hace falta que me votes a mi, pero por favor, vota!!!!!) tenes que ir a la oficina 1502 entre el 13/10 y el 17/10 (entre las 14 y las 19)*
 
-[![Foo](https://i.ibb.co/Mxk1szfy/cubaca-1.png "Haceme click!!!!!!!")](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+[![Foo](https://i.ibb.co/6JNwTwYk/cubaca-2.png "Haceme click!!!!!!!")](https://www.youtube.com/watch?v=dQw4w9WgXcQ) [![Foo](https://i.ibb.co/6JNwTwYk/cubaca-2.png "Haceme click!!!!!!!")](https://www.youtube.com/watch?v=dQw4w9WgXcQ) [![Foo](https://i.ibb.co/6JNwTwYk/cubaca-2.png "Haceme click!!!!!!!")](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+[![Foo](https://i.ibb.co/6JNwTwYk/cubaca-2.png "Haceme click!!!!!!!")](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
 
 
