@@ -40,21 +40,7 @@ Como estudiante de compu, vengo experimentando de primera mano como la falta de 
 
 > *gracias por leerme!! (asumo que me leiste si llegaste hasta aca). para votar (no hace falta que me votes a mi, pero por favor, vota!!!!!) tenes que ir a la oficina 1502 entre el 13/10 y el 17/10 (entre las 14 y las 19)*
 
-
-
-[<img alt="haceme click!!!!!!" src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-[<img alt="dalee haceme click!!!!" src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-[<img alt="te juro q no soy un virus" src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-[<img alt="jeje" src="https://i.ibb.co/6JNwTwYk/cubaca-2.png">](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-
-
-
-
-
-
-
-
-
-
-
-
+[![haceme click!!!!!!](https://raw.githubusercontent.com/jchoclin/cosas/refs/heads/main/cubaca_2.png)](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+[![dalee, haceme click!!!!](https://raw.githubusercontent.com/jchoclin/cosas/refs/heads/main/cubaca_2.png)](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+[![te juro q no soy un virus](https://raw.githubusercontent.com/jchoclin/cosas/refs/heads/main/cubaca_2.png)](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+[![jeje](https://raw.githubusercontent.com/jchoclin/cosas/refs/heads/main/cubaca_2.png)](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
